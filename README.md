@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Xgenin
+- 👀 I’m interested in Developers
+- 🌱 I’m currently learning talent acquisition
+- 📫 How to reach me jobs@xgenin@gmail.com
